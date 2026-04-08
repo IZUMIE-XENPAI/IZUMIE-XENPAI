@@ -1,12 +1,11 @@
-- 👋 Hi, I’m @IZUMIE-XENPAI
-- 👀 I’m interested in Coding
-- 🌱 I’m currently learning Business Management
-- 💞️ I’m looking to collaborate on QUEEN NISHIMIYA
-- 📫 How to reach me https://telegram.me/IZUMIE_XENPAI
-- 😄 Pronouns: Male
-- ⚡ Fun fact: You're a nigga
+This Account has been archived by Sameem(Myself),
+i read the policy that a person shouldn't own more than one account at a time.
 
-<!---
-IZUMIE-XENPAI/IZUMIE-XENPAI is a ✨ special ✨ repository because its `README.md` (this file) appears on your GitHub profile.
-You can click the Preview link to take a look at your changes.
---->
+but for me this account hold a lot of memories like when i didn't knew coding and created alot of error pages believing in Ai words.
+
+I'm wishing to archive this account so when i need i could get back to this.
+
+## Username
+If anyone likes to get this username I'm giving the complete permission for that
+
+if anyone would like to contact me regarding the account you can email me at Linkedin, I'm the founder of Qxel so you can reach me there. not dropping email due to spam issues.
